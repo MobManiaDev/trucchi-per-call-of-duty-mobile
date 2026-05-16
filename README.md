@@ -21,7 +21,15 @@
   <li>Token illimitati.</li>
 </ul>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Call of Duty Mobile](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <p>Ogni risorsa elencata sarà tua in quantità infinita, permettendoti di affrontare ogni missione e modalità di gioco con estrema facilità. Questo è ciò che rende i nostri <strong>trucchi per Call of Duty Mobile</strong> una scelta essenziale per ogni giocatore che desidera ottenere il massimo.</p>
 
@@ -94,4 +102,12 @@ Sì, il nostro team aggiorna costantemente il sistema per garantire la piena com
 
 <p><strong>Scarica ora i trucchi per Call of Duty Mobile</strong> e inizia a sbloccare contenuti, potenziamenti e risorse illimitate in pochi minuti. Non rimandare: <strong>il momento di agire è adesso</strong>.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Call of Duty Mobile](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
